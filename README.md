@@ -6,4 +6,4 @@ if you'd like to contact me, you can find me in the following places:
 
 * Discord: [pyurai#5923](https://discord.com/users/943677900576682024)
 * Email: [pyurai@pm.me](mailto:pyurai@pm.me)
-* Twitter: [@pyurai](https://twitter.com/pyurai)
+* Twitter: [@pyuraii](https://twitter.com/pyuraii)
